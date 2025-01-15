@@ -3,3 +3,5 @@ Além de namorada, tenho você como minha melhor amiga, a minha companheira de v
 Estou e estarei contigo quando estiver por baixo e, claro, estarei contigo quando estiver por cima. Adoro os momentos de carinho, adoro os momentos íntimos, adoro passar o tempo com você, eu te adoro e te amo, minha tanajura🤍🌜
 
 by: seu homi🤍🌷
+
+Se chegou até aqui vai ganhar um copão de açaí 🙊🙊🙊
